@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning IT program
 - 💞️ I’m looking to collaborate on i dont know
 - 📫 How to reach me 89267691269
-- 😄 Pronouns: 
+- 😄 Pronouns: 1
 - ⚡ Fun fact: 
 
 <!---
